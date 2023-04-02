@@ -1,1 +1,1 @@
-https://play.unity.com/p/jesss-98k/edit
+https://play.unity.com/mg/other/jesss-98k
